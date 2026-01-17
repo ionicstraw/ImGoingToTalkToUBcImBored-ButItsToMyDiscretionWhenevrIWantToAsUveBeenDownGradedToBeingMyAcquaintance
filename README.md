@@ -11,3 +11,5 @@ i took some pictures earlier bc my parents wanted to go to a nice dinner later b
 yo wth its really snowing what are we going to do the entire day im so bored
 
 those gianvito rossi black bijoux shoes -> so uncomfortable, i wanted to get the gold ones too but i dunno, ill wait and keep thinking about it. valentino on the other hand, never fails. so comfortable, no issues. thats why i wanted to try the bijoux heels on at the short hills mall but they were sold out
+
+everything is good EXCEPT my skin is not cooperating theres a dumb acne scar on my nose from earlier in the week >:(
